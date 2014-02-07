@@ -1,3 +1,1 @@
-FooCoin (FOO)
-
-Blah, blah, blah.
+Ding is a new and better CryptoCurrency, which will get interest payment, the earlier you join us, the more interest you will get, every day, month, and year. you also can pass the interest entitlement to your son and grandson, enjoy our new and better currency.
